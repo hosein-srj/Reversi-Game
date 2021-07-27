@@ -8,5 +8,5 @@ a video from game
 
 
 
-https://user-images.githubusercontent.com/54143711/127166871-86af8b9c-eca7-454b-9a43-8c3fe7045e76.mp4
+![ezgif com-gif-maker (3)](https://user-images.githubusercontent.com/54143711/127167129-10a0b5ff-d532-440f-933e-6417cfd75881.gif)
 
